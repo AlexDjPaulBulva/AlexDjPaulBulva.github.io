@@ -1,1 +1,0 @@
-# AlexDjPaulBulva.guthub.io
